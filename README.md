@@ -11,15 +11,6 @@ With innovative approaches and advanced methodologies, Vecta Corporation provide
 2. vConvert 2.0
 3. vRetain 1.0
 
-## Client Testimonials
-> Throughout the years we have worked with Vecta Corporation, we have always been amazed at the level of dedication and professionalism that they have provided us and our WGDC products. It is this commitment that has increased both our income and exposure exponentially.  
-> -_Ferris Finkelstein, Founder and CEO, Dorknozzle_
-
-> Incredible results from an incredible effort by the Vecta Corporation team! We are very pleased with the business benefits we have rceived by working with them.  
-> -_Justin Case, CTO, IX Inc._
-
-## Contact us
-
 **Vecta Corporation**  
 555 Technology Place  
 San Diego, CA 92115  
