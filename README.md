@@ -1,6 +1,5 @@
-# Welcome to Vecta Corp.
-
-![ebusiness solutions](https://www.aranetllc.com/fileslibrary/desktop/pages/aranet-ebusiness-solutions.jpg)  
+# Welcome to Vecta Corp.  
+  
 A perfect vSolutions for your agile online business  
 
 ## About us
